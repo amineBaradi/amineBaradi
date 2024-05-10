@@ -2,7 +2,7 @@
 👀 I’m interested in mobile app development, software engineering, and technology in general.
 🌱 I’m currently learning new frameworks and technologies to enhance my skills in mobile app development.
 💞️ I’m looking to collaborate on open-source projects related to mobile app development.
-📫 You can reach me via email at amine2020baradi@gmail.com or through my LinkedIn profile www.linkedin.com/in/amine-baradi-604724283).
+📫 You can reach me via email at amine2020baradi@gmail.com or through my LinkedIn profile www.linkedin.com/in/amine-baradi-604724283.
 😄 Pronouns: He/Him
 ⚡ Fun fact: I enjoy hiking and exploring new places in my free time!
 
